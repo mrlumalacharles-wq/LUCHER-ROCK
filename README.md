@@ -1,2 +1,0 @@
-# LUCHER-ROCK
-Communications
